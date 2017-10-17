@@ -15,10 +15,12 @@
 
 _我只有一天的回忆_
 ***
-也许你已经忘记我
-1. 就算没有结果
-2. 我也能够承受
-3. 我知道你的痛是我给的承诺
+  也许你已经忘记我
+
+    1.  就算没有结果
+    2.  我也能够承受
+    3.  我知道你的痛是我给的承诺
+
 
 ![图片](https://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E5%B0%8F%E6%B8%85%E6%96%B0&step_word=&hs=0&pn=3&spn=0&di=65596031290&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=2&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=-1&cs=3549496778%2C2425390027&os=2577791416%2C4070586352&simid=0%2C0&adpicid=0&lpn=0&ln=1998&fr=&fmq=1508223926625_R&fm=&ic=0&s=undefined&se=&sme=&tab=0&width=&height=&face=undefined&ist=&jit=&cg=&bdtype=13&oriquery=&objurl=http%3A%2F%2Fimgsrc.baidu.com%2Fimgad%2Fpic%2Fitem%2F9e3df8dcd100baa1706f8e964c10b912c8fc2e58.jpg&fromurl=ippr_z2C%24qAzdH3FAzdH3Fmllrtv_z%26e3Bv54AzdH3Fp7rtwg-caa90b8d9_z%26e3Bip4s&gsm=0&rpstart=0&rpnum=0)
 ---
